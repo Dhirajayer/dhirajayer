@@ -1,3 +1,4 @@
+![alt text](https://scontent.fktm3-1.fna.fbcdn.net/v/t1.6435-9/200816457_837834996826607_431733332810154561_n.jpg?_nc_cat=100&ccb=1-5&_nc_sid=09cbfe&_nc_ohc=0ER1EUVwNrUAX-ZHxBA&_nc_ht=scontent.fktm3-1.fna&oh=00_AT8wJMPEaEzrNa8mq3q_oqKBhI7D0glXn296-7tgGT1AOw&oe=62285CC9)
 ### 👨🏻‍💻 &nbsp;About Me
 
 💡 &nbsp; I'm a Sub-engineer, working on production of construction supervision and site visiting. \
